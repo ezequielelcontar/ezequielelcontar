@@ -46,7 +46,6 @@ Contacto 📫
 
 Instagram: Ezequiel Elcontar
 LinkedIn: Ezequiel Elcontar
-¡También puedes visitar mi página web personal en www.paginaweb.com/ezequielelcontar para obtener más información sobre mí y mis proyectos!
 
 
 ¡Gracias por visitar mi perfil!
